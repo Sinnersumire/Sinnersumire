@@ -9,3 +9,6 @@ okay ⁴
 be relatable, please.... thank yeww!!!!
 
 ![17353420384774548262793987015528](https://github.com/user-attachments/assets/9490a3f6-b4cb-4870-aae8-644c0cf77e03)
+
+im still building Haru im broke pls
+![17353422485192918894091238472036](https://github.com/user-attachments/assets/5235c717-9daf-429d-b137-2c30d8cdf4f7)
