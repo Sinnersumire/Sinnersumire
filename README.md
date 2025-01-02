@@ -1,6 +1,9 @@
-![17358040655304359477523522312083](https://github.com/user-attachments/assets/c28ecbda-07a7-49b2-93a8-ac441575b17e)
-okay
+everyday the same day >-×
+![17358293205393779810473437490694](https://github.com/user-attachments/assets/018eac7e-f1d5-41cc-9ce4-c38c47fdca96)
 
-![17358041763413846032621281190712](https://github.com/user-attachments/assets/4127cfe7-dbbe-475f-a2b1-6097c965144e)
 
-I hate January February march arpril may June july august September October i love November and december
+Yes² im nice.... I mean it depends on the person
+![17358299461464160629793920115365](https://github.com/user-attachments/assets/94dbb2b6-9e1a-4739-99cc-b06452bdd4fb)
+
+
+![17358298067017590128117756451075](https://github.com/user-attachments/assets/e86cc43a-e885-457d-91d3-5180c23772bb)
