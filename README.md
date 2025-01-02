@@ -1,14 +1,6 @@
-nya
+![17358040655304359477523522312083](https://github.com/user-attachments/assets/c28ecbda-07a7-49b2-93a8-ac441575b17e)
+okay
 
-![17353146243105187755595892605779](https://github.com/user-attachments/assets/e140830d-dda6-4a55-bfb0-ca9671a01fdb)
+![17358041763413846032621281190712](https://github.com/user-attachments/assets/4127cfe7-dbbe-475f-a2b1-6097c965144e)
 
-okay ⁴
-
-![17353152645206618517249394364235](https://github.com/user-attachments/assets/fbf9fe9b-032f-4ce7-894a-61bd18ededa9)
-
-be relatable, please.... thank yeww!!!!
-
-![17353420384774548262793987015528](https://github.com/user-attachments/assets/9490a3f6-b4cb-4870-aae8-644c0cf77e03)
-
-im still building Haru im broke pls
-![17353422485192918894091238472036](https://github.com/user-attachments/assets/5235c717-9daf-429d-b137-2c30d8cdf4f7)
+I hate January February march arpril may June july august September October i love November and december
