@@ -7,4 +7,4 @@ Yes² im nice.... I mean it depends on the person
 
 
 ![17358298067017590128117756451075](https://github.com/user-attachments/assets/e86cc43a-e885-457d-91d3-5180c23772bb)
-I will make sure you get a glimpse of my alpha mode
+I kill you 
